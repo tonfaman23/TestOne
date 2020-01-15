@@ -1,0 +1,1 @@
+# 1. Sheena Fujibayashi (Tales of Symphonia)
